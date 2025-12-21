@@ -1,4 +1,6 @@
 hi there..👀
+
+
 ![six-six-xfohv](https://github.com/user-attachments/assets/74bf2f5e-cc88-4b35-9e5f-c176318ec5f4)
 
 as you can tell I might like six ..😇😇
@@ -16,6 +18,6 @@ uhh these are pronouns and preferences, etc idk :
 
  im a minor with a partner, please dni if you like like me. thx :3
 
- bye my fellas.. don't let me get my hands on you if you hurt my sixy....
+ bye my fellas.. don't let me get my hands on you if you hurt my sixy..../j
 
  ![images](https://github.com/user-attachments/assets/93ea22f2-996e-49b8-aab4-87da5598fa5b)
