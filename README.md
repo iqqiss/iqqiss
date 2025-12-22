@@ -5,7 +5,7 @@ hi there..👀
 
 as you can tell I might like six ..😇😇
 
-idm if you cuddle me or int but i might be late reply cause I'm either watching the croods or bathing /hj😁
+idm if you cuddle me or int but i might be late reply cause I'm watching the croods /hvyj😁
 
 I have horrible wifi so dw if I disconnect, but my phone might also die..😈😈😈
 
@@ -18,6 +18,4 @@ uhh these are pronouns and preferences, etc idk :
 
  im a minor with a partner, please dni if you like like me. thx :3
 
- bye my fellas.. don't let me get my hands on you if you hurt my sixy..../j
-
- ![images](https://github.com/user-attachments/assets/93ea22f2-996e-49b8-aab4-87da5598fa5b)
+ but that probably won't happen cause I look like a drowned rat
