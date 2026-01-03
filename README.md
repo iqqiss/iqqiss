@@ -1,13 +1,8 @@
-hi there..👀
 
 
-![six-six-xfohv](https://github.com/user-attachments/assets/74bf2f5e-cc88-4b35-9e5f-c176318ec5f4)
+idm if you cuddle me or int but i might be a bit late replier cause I'm watching a show or smth idk
 
-as you can tell I might like six ..😇😇
-
-idm if you cuddle me or int but i might be late reply cause I'm watching the croods /hvyj😁
-
-I have horrible wifi so dw if I disconnect, but my phone might also die..😈😈😈
+I have horrible wifi so dw if I disconnect, but my phone might also die.
 
 uhh these are pronouns and preferences, etc idk :
  I'd prefer she / her but you can use they or it idm just not he / him pronouns Is fine!!!
